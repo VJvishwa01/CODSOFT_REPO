@@ -2,7 +2,7 @@
 
 #HI ALL 🖐
 
-This is vishwa I completed all the task 
+This is vishwa I completed all the task thank you giving me this opportunity to learn and grow in your community 
 
 #TASK 1:calculator
 
